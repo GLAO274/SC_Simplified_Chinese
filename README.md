@@ -1,0 +1,1 @@
+# SC_Simplified_Chinese
